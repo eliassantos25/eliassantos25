@@ -1,0 +1,1 @@
+- 👋 Oi, estou @eliassantos25 - 👀 estou interessado em trabalhar- 🌱 Atualmente estou aprendendo computação- 💞️ Estou procurando colaborar no empreendedorismo- 📫 Como chegar até mim eliassantos2757272@gmail.com
